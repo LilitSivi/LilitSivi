@@ -1,1 +1,1 @@
-\\//_
+:vulcan_salute:
